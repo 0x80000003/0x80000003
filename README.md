@@ -6,4 +6,4 @@ For contact :
 
 @meow.80000003 on Signal
 
-Always open to contribute to projects :)
+Always open to contribute to projects and researches :)
