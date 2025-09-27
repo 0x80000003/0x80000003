@@ -1,3 +1,1 @@
-![Whatever](photo.png)
-
-I'm not available on any social media
+I'm not available on any social media for now.
